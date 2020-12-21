@@ -1,2 +1,0 @@
-# xlusive.xyz
-photography websitte
