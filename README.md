@@ -1,2 +1,0 @@
-# darq.vip
-darq.vip
